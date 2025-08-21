@@ -48,7 +48,7 @@ Me caracterizo por el **manejo eficaz del paciente crítico**, el compromiso con
 
 ## 🔬 Proyectos o Intereses Profesionales *(para ampliar)*
 
-*(Espacio reservado para futuros proyectos relacionados con medicina, formación o tecnología.)*
+*(En proceso de formación en Ciberseguridad en el sector salud by Google)*
 
 ---
 
